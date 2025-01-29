@@ -1,4 +1,4 @@
-# Hi there, I'm Rishi Jawale! 👋
+# Hi there, I'm Rushikesh Jawale! 👋
 
 ## 🚀 Data Analyst & Aspiring Data Scientist
 
